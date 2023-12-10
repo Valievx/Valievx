@@ -5,4 +5,3 @@
 - 💬 Ask me about GitHub
 - 🔮 Linkedin: www.linkedin.com/in/alexander-valiev-7475a22a4
 - 📭 Telegram: (http://t-do.ru/valiev88 "Telegram channel")
-
