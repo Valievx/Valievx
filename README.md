@@ -6,5 +6,5 @@
 - 🔮 Linkedin: www.linkedin.com/in/alexander-valiev-7475a22a4
 - 📭 Telegram: [https://t.me/valiev88]
 
-- (https://t.me/valiev88)https://t.me/valiev88
+- [@aspia_ru](http://t-do.ru/aspia_ru "Telegram channel")
 
